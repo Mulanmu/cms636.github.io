@@ -13,4 +13,4 @@ I feel somewhat skeptical about the idea of museum becoming a huge compound of c
 
 Another interesting point that he mentioned was that museums will change from national and international to local and regional in terms of focus. I think smaller and more specific museums may transition quicker to serve more community based purposes, but I wonder how huge museums would react to this because it doesn’t make a lot of sense for them to shift focus to solely the community because their collections are still extremely valuable as world treasures. 
 
-One thing that intrigues me is that he mentioned the change of job for the current museum guards. I think it is a very interesting job because of their long time exposure to art and even some disrupting experimental art. This is off-topic but I wonder how these art influence them as individuals. 
+One thing that intrigues me is that he mentioned the change of job for the current museum guards. I think it is a very interesting job because of their long time exposure to art and even some disrupting experimental art. This is off-topic but I wonder how these art influence them as individuals.
