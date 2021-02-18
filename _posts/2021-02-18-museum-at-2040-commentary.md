@@ -7,6 +7,8 @@ author: Mulan
 tags:
   - Week 1
 ---
+
+
 Rozan provides a seemingly optimistic argument about the future of museums. The concept of “museum” continues to thrive but the meaning of it changes from a “single-purpose organization” to a “hybrid institution” that serves important communal purposes and takes more social responsibilities. I think his theory is reasonable since museums are facing the problem of declining visitors, which indicates that the the importance of their original purpose of solely collecting and presenting is decreasing overtime. Museum does need to find new purposes in order to survive.
 
 I feel somewhat skeptical about the idea of museum becoming a huge compound of civic institutions. But to what extent can we alter the essence of the concept “museum” before it actually changes into something else? It reminds me of some bookstores in the shopping center at my hometown that, in order to survive, they gradually replaced books sections with clothings, housewares, and coffee shop, to an extent that I questioned myself whether it can still be called a bookstore. And for visitors like me who is only attracted to the store because of its book, it seems to fail its original purpose. 
