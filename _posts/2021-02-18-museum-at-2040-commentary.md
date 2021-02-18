@@ -2,7 +2,7 @@
 layout: post
 published: true
 category: commentary
-title: Museum at 2040 commentary
+title: Museum at 2040 comment
 author: Mulan
 tags:
   - Week 1
